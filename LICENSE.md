@@ -1,4 +1,4 @@
-
+new valorant esp Scripts | enemy health bars + auto-crouch shot offers the most advanced valorant esp scripts, with enemy health bars and auto-crouch shot. Ideal for automating
 
 
 
